@@ -15,7 +15,7 @@
 
 📢 Training Time: 10:00 PM (22:00) - 12:00 AM (24:00) GMT+6 [Business Days]
 
-📢 Participation Fee: $150
+📢 Participation Fee: $299
 
 📢 Mentor: Verified Freelancer M01606319624 @ freelancers.gov.bd
 
